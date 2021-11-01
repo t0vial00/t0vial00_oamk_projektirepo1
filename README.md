@@ -1,0 +1,1 @@
+# t0vial00_oamk_projektirepo1
